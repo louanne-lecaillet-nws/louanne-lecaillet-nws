@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @louanne-lecaillet-nws
-- 👀 I’m interested in motocross, lecture, musique 
+- 👀 I’m interested in motocross, la lecture , musique 
 - 🌱 I’m currently learning at normandie web school 
 - 💞️ I’m looking to collaborate on trello, Google chat
 - 📫 How to reach me linkedin, indeed, insta
